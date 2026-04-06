@@ -125,7 +125,7 @@ I’m open to:
 ## 📫 Contact
 
 - Email: **bugraksaglam@gmail.com**  
-- Portfolio: **https://bugrakaansaglam-website.pages.dev**
+- Portfolio: **https://bugrakaansaglam.com**
 
 ---
 
